@@ -1,0 +1,2 @@
+# Bored-Willy-NFT
+*666 unique, Avatars that you'll love to collect, free mp3 instrumental for those who wish to join the freestyle contest on our discord, free Bored Willy emoji, memes and animations.   *More than 280+ high quality traits that will make you lose your mind. Specific date for presales and time will be announced at least 7 days before the drop!  *Winners of our stage one freestyle competition will get a chance to feature Mr Willy in any of their songs minted as an NFT in stage two and have it promoted to over 500,000 fans on the metaverse.
